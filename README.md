@@ -7,9 +7,9 @@
 🐟 -> aside  from  those  you  can  interact  with  me  if  we  share  interests !  I  mean  no  harm  to  you ,  I  promise .
 
 🌱 -> here's  some  info  about  my  status  changes  on  Pony  town !
-      - Online :  I  am  very  interested  to  interact  with  anyone .
-      - Idle   :  I  am  feeling  great !  But  I  may  not  be  the  one  to  interact  first  sometimes .
-      - Busy   :  I  am  feeling  a  little  tired ,  but  this  doesn't  mean  that  I  bite !  I  am  either  sick  or  rather  multitasking .
+      - Online :  I  am  very  interested  to  interact  with  anyone .  /
+      - Idle   :  I  am  feeling  great !  But  I  may  not  be  the  one  to  interact  first  sometimes .  /
+      - Busy   :  I  am  feeling  a  little  tired ,  but  this  doesn't  mean  that  I  bite !  I  am  either  sick  or  rather  multitasking .  /
       - Looking for chat  : I  am  DESPERATE  to  talk  to  someone  that  shares the  same  interests  as  me ,  PLSPLSPLSPLSPLS  INTERACT  WITH  ME .  of  course  I'm  not  forcing  you  to .
 
 🔥 -> here's  some  more  of  my  interests  if  you  care ! : Disventure  Camp ,  Total  Drama ,  Any  of  the  Boy  games  you  know , Roblox  Flicker , Roblox  Murder  Island  2 , Papa  Louie , And  much  more !
