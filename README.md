@@ -1,6 +1,17 @@
-# boo! it's me, Cameo! or you can refer to Hunter, Scraps, and Millipede.👋
-# I am agender, but I mostly use he/him, they/them, and it/its. if it makes it easier, you can just use he/him only. 😮
-# I really enjoy Disventure camp! I rewatch the episodes daily... especially for Tom, Jake, Hunter, Gabby, Ellie, Kai, and Trevor. 🔥
-# please refrain from venting to me or any other things like that, I am TERRIBLE AT FEELINGS! so I react very poorly : ( 😰
-# that's all! you can always meet me on pony town in the carrot field as a Hunter pony in a SPECIFIX corner, which is my home, hope we interact! 😋
+👋 -> hey  there !  My  name  is  Cameo !  but  you  can  refer  to  me  as  Millipede  or  Hunter.
+
+👍 -> PLLEEEAASSSEE  interact  with  me  if  you  know  about  any  of  the  boy  games ,  such  as  Psycho  boy, Shy  boy, ect .
+
+👎 -> GOOOOO  AWAAAYYY  AND  DNI  IF  YOU  ARE  A  WEIRDO ! ! ! and  please  DO  NOT  TALK  TO  ME  ABOUT  SENSITIVE  TOPICS .  AAANNNDD  IF  YOU  TALK  RUDELY  ABOUT  OTHER  PEOPLE  BEHIND  THEIR  BACKS  GOOOOO  AAAWWWAAYYY ! ! !
+
+🐟 -> aside  from  those  you  can  interact  with  me  if  we  share  interests !  I  mean  no  harm  to  you ,  I  promise .
+
+🌱 -> here's  some  info  about  my  status  changes  on  Pony  town !
+      - Online :  I  am  very  interested  to  interact  with  anyone .
+      - Idle   :  I  am  feeling  great !  But  I  may  not  be  the  one  to  interact  first  sometimes .
+      - Busy   :  I  am  feeling  a  little  tired ,  but  this  doesn't  mean  that  I  bite !  I  am  either  sick  or  rather  multitasking .
+      - Looking for chat  : I  am  DESPERATE  to  talk  to  someone  that  shares the  same  interests  as  me ,  PLSPLSPLSPLSPLS  INTERACT  WITH  ME .  of  course  I'm  not  forcing  you  to .
+
+🔥 -> here's  some  more  of  my  interests  if  you  care ! : Disventure  Camp ,  Total  Drama ,  Any  of  the  Boy  games  you  know , Roblox  Flicker , Roblox  Murder  Island  2 , Papa  Louie , And  much  more !
+
 ❕ take note I am very quiet when on ponytown and only talk if someone interacts with me or if it's one of my green names!
