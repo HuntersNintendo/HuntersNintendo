@@ -1,8 +1,6 @@
 👋 -> hey  there !  My  name  is  Cameo !  but  you  can  refer  to  me  as  Millipede  or  Hunter.
 
-👍 -> PLLEEEAASSSEE  interact  with  me  if  you  know  about  any  of  the  boy  games ,  such  as  Psycho  boy, Shy  boy, ect .
-
-👎 -> GOOOOO  AWAAAYYY  AND  DNI  IF  YOU  ARE  A  WEIRDO ! ! ! and  please  DO  NOT  TALK  TO  ME  ABOUT  SENSITIVE  TOPICS .  AAANNNDD  IF  YOU  TALK  RUDELY  ABOUT  OTHER  PEOPLE  BEHIND  THEIR  BACKS  GOOOOO  AAAWWWAAYYY ! ! !
+👍 -> PLLEEEAASSSEE  interact  with  me  if  you  know  about  any  of  the  boy  games ,  such  as  Psycho  boy, Shy  boy, ect . Aaand if you know any incredibox mods! bonus points if you know Armed (TGE CREATOR SUCKS I onky like the mod itself!), Evadare, Xrun, Colorbox, there's more but I don't think I can name 'em all.
 
 🐟 -> aside  from  those  you  can  interact  with  me  if  we  share  interests !  I  mean  no  harm  to  you ,  I  promise .
 
